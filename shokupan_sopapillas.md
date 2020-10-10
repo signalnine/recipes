@@ -1,5 +1,7 @@
 ## Shokupan Sopapillas
 
+*adapted from King Arthur Flour's Japanese Milk Bread Rolls recipe*
+
 ### Tangzhong 
 * 45g water
 * 45g whole milk
