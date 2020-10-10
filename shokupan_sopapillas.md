@@ -22,4 +22,4 @@ Mix tangzhong with the following:
 * 15g dry milk powder
 * 120g whole milk
 
-Knead until a smooth, elastic dough forms. Cover and let rise for 2 hours. Punch down and roll out into 1/8" to 1/4" thick circles about 12 to 18 inches in diameter. Cut into quarters. Fry in 300F neutral oil, spooning the hot oil over the top of the sopapilla, until it puffs up and turns golden brown. Drain oil and let cool.
+Knead until a smooth, elastic dough forms. Cover and let rise for 2 hours. Punch down and roll out into 1/8" to 1/4" thick circles about 12 to 18 inches in diameter. Cut into quarters. Fry in 340F neutral oil, spooning the hot oil over the top of the sopapilla, until it puffs up and turns golden brown. Drain oil and let cool.
