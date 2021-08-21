@@ -5,9 +5,9 @@ makes 3-4 dozen
 ### filling
 
 * 5 lbs of untrimmed bone-in pork shoulder
-* 6 dried guajillo chiles, stemmed and seeded
-* 12 dried new mexico chiles, stemmed and seeded
-* 4 dried cascabel chiles, stemmed and seeded
+* 6-10 dried guajillo chiles, stemmed and seeded
+* 12-18 dried new mexico chiles, stemmed and seeded
+* 4-5 dried cascabel chiles, stemmed and seeded
 * 2-3 dried chipotle chiles, stemmed and seeded
 * 1 large ancho chile, stemmed and seeded
 * 2 tbsp kosher salt 
