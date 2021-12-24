@@ -3,7 +3,7 @@
 ### for the dough
 
 * 150g lard
-* 100g cup sugar
+* 100g sugar
 * 2g anise seed
 * 1 egg
 * 300g ap flour
