@@ -2,7 +2,7 @@
 
 ### for the dough
 
-* 150g lard
+* 150g lard (preferably leaf lard), butter or 50/50 lard butter mix
 * 100g sugar
 * 2g anise seed
 * 1 egg
