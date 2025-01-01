@@ -18,4 +18,4 @@ Rinse chile pods thoroughly in warm water, remove stems and seeds. Add to pot wi
 
 Remove from heat and put the stock and pods into a blender. Add salt, oregano and garlic to blender. Blend until fairly smooth, set aside. Made a roux with the flour and butter or lard in the same pot on medium heat, whisk until the flour is cooked, about 5 minutes.
 
-Add the contents of the blender to the roux and whisk together. Add the honey and/or tomato paste if desired. Lower heat to a simmer, cook everything together for 20 minutes or so, stirring occasionally. Add additional stock if it's too thick. Taste and adjust salt level if it needs it.
+Add the contents of the blender to the roux and whisk together. Add the honey and/or tomato paste if desired. Lower heat to a simmer, cook everything together for 20 minutes or so, stirring occasionally. Add additional stock if it's too thick or potato flakes if it's too thin. Taste and adjust salt level if it needs it.
