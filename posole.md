@@ -1,6 +1,4 @@
-## Posole
-
-### ingredients
+## ingredients
 
 * 1 lb dried hominy
 * 3 lbs bone-in pork shoulder
@@ -10,5 +8,7 @@
 * 1 bay leaf
 * 32 oz stock (pork or chicken)
 * 6 cups water
+
+## directions
 
 Parboil dried hominy for one hour before adding rest of ingredients or soak overnight, simmer on low for 3 hours, topping up with water as needed. Pull pork apart and discard gristle as well as garlic head and bay leaf, serve with red chile & flour tortillas

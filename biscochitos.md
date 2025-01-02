@@ -1,4 +1,4 @@
-## Biscochitos
+## ingredients
 
 ### for the dough
 
@@ -13,9 +13,10 @@
 
 ### combine separately in a shallow bowl
 
-2 tsp sugar
-2 tsp cinnamon
+* 2 tsp sugar
+* 2 tsp cinnamon
 
+## directions
 Cream shortening, sugar, egg and anise seed. Add flour, baking powder, salt, orange juice and mix until it forms a stiff dough. Chill for 30 minutes and then roll out to about 1/8-1/4", cut into shapes, press each cookie into the sugar and cinnamon mixture and bake on a greased cookie sheet for 10 minutes at 375F.
 
 Makes about 2-3 dozen cookies, depending on size.
